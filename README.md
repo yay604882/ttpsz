@@ -7,7 +7,7 @@
 * 2、画面独特新颖，真人配音
 * 3、游戏玩法多样化，操作简单
 
-![image](https://github.com/yay604882/mingrenzhipai/blob/master/111.jpg)
+![image](https://github.com/yay604882/ttpsz/blob/master/2.jpg) ![image](https://github.com/yay604882/ttpsz/blob/master/5.jpg)
 
 
 
